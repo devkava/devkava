@@ -1,4 +1,4 @@
-# 👋 Welcome, I'm Anastasiia K.
+# Welcome, I'm Anastasiia K. 👋 
 
 ## Senior WordPress Developer
 
